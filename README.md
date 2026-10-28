@@ -1,1 +1,0 @@
-# Abo-Ya3qoup-school
